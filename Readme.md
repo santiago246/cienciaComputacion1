@@ -1,5 +1,5 @@
 # cienciaComputacion1
 
-Jose Santiago Aspajo Layme
+Jose Santiago Alain Aspajo Layme
 
-
+sdjkfgsdjksdhukghasdgsagsdgsdgsda
